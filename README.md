@@ -1,0 +1,1 @@
+# farooqi-global-sourcing
